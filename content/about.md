@@ -1,9 +1,9 @@
-—-
+---
 title: "Why This Blog?"
 date: 2021-07-22T20:21:12+02:00
 type: section
 draft: false
-—-
+---
 
 > #### clarity /ˈklarɪti/
 > noun
