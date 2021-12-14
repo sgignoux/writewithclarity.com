@@ -12,16 +12,12 @@ draft: false
 > 
 > — Oxford Languages
 
-It started very simply: I was getting more and more frustrated with my inability to think clearly and communicate new concepts and ideas to others. Without clear communication, no dialogue is possible. No cooperation is possible.
+It started simply: I was getting more and more frustrated with my inability to think clearly and communicate new concepts and ideas to others. When people were replying to my emails, I could see that they didn't "get my points." When reading again documents I wrote just a few weeks before, it was not making as much sense as I thought when writing them initially.
 
-Because writing is a craft and I wanted to improve on it, I decided to practice writing regularly. This blog is a place to practice, to share my findings and record my journey.
+I also found that reading unclear articles not only frustrated me but could even make me somewhat angry. Bad writing wastes everybody's time. For me, good communication was something critically important and I just couldn't continue inflicting my bad communication to others. I had to do something.
 
-I hope that I can encourage others to go down that path and improve their communications skills. If I manage to bring a little bit of clarity or improve the quality of any debates, I’ll be more than happy.
+Because writing is a craft, I could work on it in order to improve. This is why I created this blog, as a place to practice, to share my findings and record my journey.
 
-This is about writing to bring clarity its own thinking.
+I hope that I can encourage others to go down that path and improve their communications skills.
 
-It is about writing to communicate clearly any idea and concepts.
-
-It is about learning to read to understand other points of view and have a better discussion.
-
-When I think about the things I am deeply passionate about and that could be the most impactful, writing with clarity is at the top of my list.
+This blog focus on "non-fiction" writing. It is about communicating with others, and oneself, in order to teach, share ideas, convince, argument. It doesn't focus on writing that focus solely on entertaining or literature works.
